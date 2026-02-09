@@ -1,27 +1,27 @@
 <div align="center">
 
-<img src="https://images-na.ssl-images-amazon.com/images/P/B0GBXGZ2GR.01.LZZZZZZZ.jpg" width="160"/>
+<img src="https://images-na.ssl-images-amazon.com/images/P/B0G727KHJN.01.LZZZZZZZ.jpg" width="160"/>
 
 <br>
 
 ⭐⭐⭐⭐⭐  4.9 / 5
 
-<h2>LOS HEREDEROS DEL SILENCIO</h2>
-<strong>por ONA BRUNSERA</strong>
+<h2>Un alfa sangriento</h2>
+<strong>por T. N. Hawke</strong>
 
 <br>
 <br>
 
-Descargar o leer en línea LOS HEREDEROS DEL SILENCIO (PDF ePub Mobi) - ONA BRUNSERA
+Descargar o leer en línea Un alfa sangriento (PDF ePub Mobi) - T. N. Hawke
 
-Ebook PDF LOS HEREDEROS DEL SILENCIO | DESCARGA ONLINE  
+Ebook PDF Un alfa sangriento | DESCARGA ONLINE  
 Si quieres descargar un Ebook gratis, estás en el lugar correcto.  
 El Ebook/PDF está disponible gratis aquí.  
-Haz clic en el enlace para descargar LOS HEREDEROS DEL SILENCIO PDF por ONA BRUNSERA.
+Haz clic en el enlace para descargar Un alfa sangriento PDF por T. N. Hawke.
 
 <br>
 
-<a href="https://flipbooks.top/read/245665315/"><strong>📥 Descargar LOS HEREDEROS DEL SILENCIO 👈</strong></a>
+<a href="https://flipbooks.top/read/245472495/"><strong>📥 Descargar Un alfa sangriento 👈</strong></a>
 
 ---
 
@@ -34,7 +34,7 @@ Haz clic en el enlace para descargar LOS HEREDEROS DEL SILENCIO PDF por ONA BRUN
 
 ## 📘 Sobre el libro
 
-**Descargar o leer en línea LOS HEREDEROS DEL SILENCIO (PDF ePub Mobi) - ONA BRUNSERA** es un libro poderoso que explora el crecimiento personal, el aprendizaje y las habilidades prácticas. Está escrito de forma clara y atractiva, adecuado para principiantes y lectores avanzados.
+**Descargar o leer en línea Un alfa sangriento (PDF ePub Mobi) - T. N. Hawke** es un libro poderoso que explora el crecimiento personal, el aprendizaje y las habilidades prácticas. Está escrito de forma clara y atractiva, adecuado para principiantes y lectores avanzados.
 
 ---
 
@@ -72,6 +72,6 @@ Sí, versión completa con fines educativos.
 
 <div align="center">
 
-<a href="https://flipbooks.top/read/245665315/"><strong>📥 Descargar LOS HEREDEROS DEL SILENCIO 👈</strong></a>
+<a href="https://flipbooks.top/read/245472495/"><strong>📥 Descargar Un alfa sangriento 👈</strong></a>
 
-</div>
+</div>****
